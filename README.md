@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://cg81-01.pages.dev/">吃瓜网站</a>
 
-点击访问：<a href="https://pi002.pages.dev/">51吃瓜网</a>
+点击访问：<a href="https://cg165.pages.dev/">每日吃瓜大赛网</a>
 
 点击访问：<a href="https://hl404.pages.dev/">黑料吃瓜网</a>
 
