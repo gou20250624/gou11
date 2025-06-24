@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://aw8-11.pages.dev/">暗网视频</a>
 
-点击访问：<a href="https://hl404.pages.dev/">黑料吃瓜网</a>
+点击访问：<a href="https://pi25.pages.dev/">17吃瓜</a>
 
 点击访问：<a href="https://cg147.pages.dev/">50度灰瓜</a>
 
